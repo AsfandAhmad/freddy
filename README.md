@@ -1,1 +1,1 @@
-# freddy
+# freddy (The Character of Story)
