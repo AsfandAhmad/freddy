@@ -1,2 +1,2 @@
-# freddy (The Character of Story)
+# freddy (The Character of Story) --> #
 
